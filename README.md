@@ -1,4 +1,4 @@
-## Hey there 🌟
+## Heyo,🌟
 
  ⟡ Hi, I’m @Shauryaahaha
  
